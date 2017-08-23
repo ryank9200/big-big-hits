@@ -9,7 +9,7 @@ apologize||||
 By the time I get to Phoenix||||
 Classical Gas||||
 Harper Valley P.T.A.|||| 
-Hey Jude |Beatles|||
+Hey Jude |Beatles|John Lennon/Paul McCartney||
 Honey ||||
 Hush ||Joe South|| 
 Lady Willpower ||||
